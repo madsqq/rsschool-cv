@@ -1,1 +1,1 @@
-# rsschool-cv
+https://madsqq.github.io/rsschool-cv/
